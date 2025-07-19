@@ -1,6 +1,14 @@
 # Projects Inspiation Edition
 ~~Projects 2025 Edition~~
 
+Spring is a time for action, and action is a powerful antidote: to lethargy, boredom, anxiety, and even all-out despair.
+
+Last spring, I published my first list of ideas for spring projects—a resource to help coax and inspire us all to get back out there, to re-engage dormant hands and get the gears turning again. 
+
+This year, I'm excited to present the follow-up, including projects with fewer barriers to entry, and a new category called "Being." Some entries might be familiar (like axe sharpening), while others (like tramping) serve as small "instigators" to do with what you please. 
+
+Regardless of the level of your spring ambition, I hope this list inspires some momentum.
+
 ### Making:
 
 - Clay hand-building
