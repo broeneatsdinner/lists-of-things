@@ -5,6 +5,10 @@ Projects, Hobbies, Weekend Tasks, Software to Learn, lists.
 Originally created by Peter Buchanan-Smith on April 8, 2025  
 Adapted/extended further to that
 
+[Uses for Tenugui](tenugui-uses.md)  
+From tenuguis in Japan to bandanas in the States  
+A list of usefulness for this piece of cotton
+
 ![IMG_6273](https://github.com/user-attachments/assets/5ef4da6b-152b-4874-b2d1-a3ddca812377)
 
 My father has a PhD in animal science, but on the farm that I grew up on in Southern Ontario, he was a master tinkerer. There was always something broken or on the verge of breaking down. Anything could go at any moment, especially if it had an engine. My father is a brilliant Scot and he would buy highly-used equipment: the David Brown tractor, the International Harvester hay bailer, or the anonymous manure spreader. 
