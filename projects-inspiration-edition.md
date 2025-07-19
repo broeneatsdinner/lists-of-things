@@ -1,4 +1,5 @@
-# Projects 2025 Edition
+# Projects Inspiation Edition
+~~Projects 2025 Edition~~
 
 ### Making:
 
