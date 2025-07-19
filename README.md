@@ -1,4 +1,4 @@
-# lists-of-things
+# Lists of Things
 Projects, Hobbies, Weekend Tasks, Software to Learn, lists.
 
 [Projects Inspiration Edition](projects-inspiration-edition.md)  
